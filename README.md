@@ -12,7 +12,7 @@
 
   ***Without understanding why she was angry.but i accepted that i had to  apologize.Maybe this is life***
 
-![life](C:\Users\Administrator\Desktop\life.jpg)
+![life](life.jpg)
 
 <!---
 syhdg/syhdg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

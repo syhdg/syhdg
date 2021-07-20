@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @syhdg
 
-- 👀 I’m interested in Android and zy, of course this is a girl name
+- 👀 I’m interested in Android and CHL, of course this is a girl name
 
 - 🌱 I’m currently learning  and focus on android, everything will be ok if you do it!
 
-- 💞️ I’m looking to collaborate on github 
+- 💞️ I’m going to  lose weight
 
 - 📫 How to reach me , you can send an email at 276307894@qq.com
 
